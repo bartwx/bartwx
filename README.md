@@ -32,7 +32,7 @@ If you're working on something cool, **let’s chat!**
 
 ## 📫 Let's Connect  
 📩 **Email**: support@dtchdigitals.com  
-🌐 **Website**: [DTCH Digitals](https://dtchdigitals.com)  
+🌐 **Website**: [Dtch. Digitals](https://dtchdigitals.com)  
 📞 **Call**: +31 (0)74 265 99 99  
 
 ---
